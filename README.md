@@ -7,7 +7,7 @@ Email Me 👉 ✉️ **truong.van.phong@sun-asterisk.com** For Collaboration/Pro
 - 🤔 **I’m looking for help with:** Your project here
 - 💬 **Ask me about:** Collaboration, Tech Support
 - 📫 **How to reach me:** Enter your email here
-- 😄 **Pronouns:** Imran Sir
+- 😄 **Pronouns:** Truong Van Phong
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
 
 <div align="center">
